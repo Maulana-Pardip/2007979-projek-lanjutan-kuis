@@ -1,2 +1,2 @@
-# 2007979-projek-lanjutan-kuis
-berisi projek lanjutan kuis tanggal 07-10-2021
+# 2007979-PW pertemuan ke 6
+berisi projek PW pertemuan ke 6
